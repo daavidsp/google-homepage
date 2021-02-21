@@ -1,0 +1,1 @@
+Google replika tiks izveidota šeit
